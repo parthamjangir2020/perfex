@@ -133,6 +133,7 @@ Skype:ersonusaini | WhatsApp : +919782533298 ( India )<br />
 https://wa.me/919782533298  - WhatsApp<br />
 https://t.me/perfexcrm  - Telegram Support<br />
 https://rakebig.com/ersonusaini - portfolio orther gigs<br />
+https://paypal.me/ersonusaini/ - Paypal 
 
 =============================<br />
 Hire Me freelancers <br />
